@@ -1,1 +1,1 @@
-# Top-Google-Adsense-Alternative
+# Top Google Adsense Alternative
